@@ -1,6 +1,5 @@
-# dariapoczta.github.io
 
-#**Daria Poczta**
+# Master of party **Daria Poczta - LET MAKE YOUR BEST TIME**
 
 # Welcome to my own page!
 
